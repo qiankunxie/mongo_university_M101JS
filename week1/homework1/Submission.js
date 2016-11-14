@@ -1,1 +1,0 @@
-Answer: I like kittens
